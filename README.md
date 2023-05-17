@@ -1,1 +1,1 @@
-# EJ_InlandEmpire
+# Environmental Justice in the InlandEmpire
